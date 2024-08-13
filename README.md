@@ -6,4 +6,14 @@ meu nome é Iasmin
 - estou me desenvolvendo na linguagem javascript 
 - ultilizo esse espaço para minha organizaçao e compartilhamento dos meus projetos desenvolvidos 
 
-####
+#### voce pode entrar em contato comigo 📧
+
+iasminbezerraa@gmail.com
+
+
+
+
+
+
+
+
